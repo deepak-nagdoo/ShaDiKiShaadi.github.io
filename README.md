@@ -1,1 +1,1 @@
-# shadiShaadi.github.io
+# ShaDiShaadi.github.io
